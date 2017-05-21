@@ -1,1 +1,1 @@
-# comments_of_www.jackeriss.com
+comments of www.jackeriss.com
